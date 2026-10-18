@@ -1,0 +1,2 @@
+# premium-rooster-vane-001-rooster-vane-repousse-build-lo
+Tired of losing track of your repousse hammer strikes and weather vane measurements? The Rooster Vane Repousse Build Log Notion template keeps every step, sketch, and metal thickness in one place.  Stop juggling scattered notes and forgotten details. This template provides a dedicated framework to document each stage of your rooster vane build—from
